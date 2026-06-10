@@ -81,13 +81,13 @@ The primary translation below is by Prof. Nicholas Sims-Williams, SOAS Universit
 
 ### Trade Conditions
 
-> And from Dunhuang up to Jincheng in . . . to sell, linen cloth is going [= selling well?], and whoever has unmade (cloth)(?) or *raghzak* (which is) not (yet) brought (to market)(?), not (yet) taken, [can](?) sell [all](?) of it . . .
+> And from Dunhuang up to Jincheng in . . . to sell, linen cloth is going [= selling well?], and whoever has unmade (cloth)(?) or *raghzak* (which is) not (yet) brought (to market)(?), not (yet) taken, \[can\](?) sell \[all\](?) of it . . .
 
 *Even as he reports the fall of empires, Nanai-vandak reports on market conditions. Linen is selling. This is not callousness. This is a man whose survival, and the survival of everyone who depends on him, is tied to whether goods can still move.*
 
 ### The Writer's Own Condition
 
-> And, sirs, as for us, whoever dwells (in the region) from Ji[ncheng](?) up to Dunhuang, we (only) survive [*lit.* "have breath"] so long as the . . . lives, and (we are) without family(?), both old and on the point of death. If this were not (so), [I would] not be ready(?) to write to you (about) how we are.
+> And, sirs, as for us, whoever dwells (in the region) from Ji\[ncheng\](?) up to Dunhuang, we (only) survive [*lit.* "have breath"] so long as the . . . lives, and (we are) without family(?), both old and on the point of death. If this were not (so), [I would] not be ready(?) to write to you (about) how we are.
 
 *Sims-Williams preserves the literal translation, "have breath," in brackets. It says more than "survive" would. Nanai-vandak is telling his employer that the Sogdians along the Hexi Corridor are hanging on, barely, without families, aging, and close to the end. And he would not be writing this if things were not that desperate.*
 
